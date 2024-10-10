@@ -1,0 +1,2 @@
+# Shuti-AI
+Good thinking 
